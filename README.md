@@ -15,4 +15,4 @@
 
 为提高搜索引擎的排名，我们在页面标题、Meta描述和正文中自然融入了“日本AV免费”、“高清不卡”等关键词，确保用户在搜索时能够迅速找到我们提供的优质资源。通过每日更新和“今日更新”标签，我们确保内容的新鲜度和活跃性，增加了用户粘性。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong6 ）</span>
